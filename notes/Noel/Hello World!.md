@@ -1,0 +1,1 @@
+First note using Noel directory and Obsidian!
